@@ -1,0 +1,2 @@
+# ebonus.gg
+earn coin
